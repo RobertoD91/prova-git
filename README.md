@@ -6,6 +6,8 @@ che bello!!!!!!
 wowo siamo sull'internet!!!
 cucu
 
+SONO UN UN PROGRAMMATROTA!
+
 ho fatto modifiche!
 
 ho fame!
